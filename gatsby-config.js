@@ -3,7 +3,7 @@ module.exports = {
     title: `We all go boom`,
     author: {
       name: `WC | Budz`,
-      summary: `live forever or die trying`,
+      summary: `: live forever or die trying`,
     },
     description: `Psychdelics, consciousness and death. Small talk for big minds.`,
     siteUrl: `https://weallgoboom.com`,
