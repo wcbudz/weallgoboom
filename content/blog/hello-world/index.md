@@ -1,7 +1,7 @@
 ---
-title: Hello World
-date: 2015-05-01T22:12:03.284Z
-description: Hello World
+title: 'We all go boom - Issue #4'
+date: 2020-02-29T03:03:00Z
+description: 'Boom Digest - Issue #4'
 
 ---
 When I was a teen, first introduced to LSD, psilocybin, and a bit later MDMA, there's is no fucking way you could have told me that these things would be part of the national discussion, that clinics would be opened that used these substances for healing, and corporations would be formed to produce, test, and monetize them every which way til Sunday.
