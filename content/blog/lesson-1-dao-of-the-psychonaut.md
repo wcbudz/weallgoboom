@@ -5,8 +5,7 @@ description: Use alternative states of consciousness to start becoming aware of 
   patterns and streams that make up the mask of "you."
 
 ---
-
-![Lui Haichan - Album of 18 Daoist Paintings](/content/assets/Lui Haichan - Album of 18 Daoist Paintings.jpeg "Lui Haichan - Album of 18 Daoist Paintings")
+![]("/static/uploads"/Lui Haichan - Album of 18 Daoist Paintings.jpeg)
 
 Hello citizen,
 
