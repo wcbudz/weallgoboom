@@ -158,3 +158,53 @@ Now, this mythological framework may be a powerful lens for seeing your life and
 5\. Do not take other substances - Alcohol, benzodizapiens, cannabis - these can all have the opposite effect you're looking for.   
   
 Remember, this is going to pass - if it's LSD or psilocybin, no one has ever died directly from these substances and you couldn't physically take enough for that to happen. It will pass. When you come out on the other side, it's time for integration work. You'll want to examine the fear you experienced, talk this out with a psychedelic therapist if possible, but at the very least journal your journey to help process it and bring that elixir back to others.
+
+### **Lesson 5: Integration aka doing the BIG work**
+
+**TL;DR for lesson 5: In the hero's journey, the final act is 'the return.' This is the most important step where the hero returns to their community with 'the elixir' or learnings from the journey. As a psychonaut, spending focused time on integrating the experience so the teaching is lasting and can be communicated to your community is the name of the game.**
+
+_First a quick thank you for subscribing to this guide and investing your valuable time reading through it. We're not selling anything here - this guide has been written exclusively to help those interested in the psychonaut's journey in getting started with the fundamentals._
+
+_If you know anyone who might get value from this or other information around psychedelic consciousness, send them to_ [_https://weallgoboom.com_](https://weallgoboom.com "https://weallgoboom.com") _to subscribe. If you found something in this guide that you'd like more information on, or have any feedback for us, please write to us at_ [_goboom@boom.earth_](mailto:goboom@boom.earth) _and let us know - we're happy to put new guides or blog posts together that our readership is most interested in._ And now for the final installment in 5 trip lessons for the aspiring psychonaut - Integration. In lesson 4 we talked about the hero's journey; the three acts being:
+
+* Departure
+* Initiation
+* Return
+
+Briefly, you start in the ordinary world, there is a call to adventure, you pass into the special world, go through an ordeal, obtain the elixir, return to the ordinary world and share the elixir with the community.
+
+Pretty similar to the psychonaut's path with entheogens wouldn't you say?
+
+But without intention, most will forgo what is the most important part of that journey, the integration work required to bring back the elixir.
+
+So what is integration and how do we do it?
+
+Integration is the process that you undertake to translate the experiences you have during a trip into a lasting change in your life, and knowledge that can be articulated to your community.
+
+Integration is also part of the psychonaut’s mindset, which is why when you have deeper levels of experience as a psychonaut, there cease to be any ‘bad’ trips. The experiences can still be an ordeal, there can and will be horrors to face, but you come through the journey and use the experiences whatever they are as grist for the mill of transformation and integrate the way that you’ve been transformed by the experiences in a way that optimizes for lasting change.
+
+A trip should be thought of as a minimum three-day process, similar to the three acts of the hero’s journey.
+
+Day 1: Preparation - This is where you set your intentions, plan your space, playlists, discuss with other travelers your goals and boundaries, etc..
+
+Day 2: The Trip - You start your journey, go through your ordeals, and have your experience
+
+Day 3: Integration - You’ve returned from the trip and now you have a day where you are contemplative, journal, meditate, try to articulate what you’ve experienced, and prepare to come back into a normal day to day life.
+
+The integration work, unfortunately, is not as simple as writing down all the things you’ve seen and thought and telling everyone how great psychedelics are. There are truths you will learn about yourself, but you shouldn’t take every vision as literal truth.
+
+Your journaling can be creative, and nonlinear. Listen to your intuition about how you’ve shifted and what you sense to be true of yourself - perhaps something you’ve always felt and the psychedelic experience allowed you to accept or surface in a new way.
+
+This takes time.
+
+To help the process of change, start a new system for yourself - such as a healthier diet, more regular spiritual practice, a consistent exercise regimen. Getting yourself into new habits and casting out old ones can be a powerful method of integrating the truths you’ve witnessed in your journey.
+
+But be aware also that returning to the ordinary world is an important part of the integration process. Ascension into the clouds without a way to resume life on this plane doesn’t do you or your community any good. And just like an astronaut shouldn’t be trying to convince every human that they need to go out to space, the psychonaut need not evangelize deep inner-space exploration. It’s only for the select few. You must come back to Earth. As Jack Kornfield writes, [“after the ecstasy, the laundry](https://jackkornfield.com/after-the-ecstasy-the-laundry/).”
+
+Ultimately integration in the context of the psychedelic experience is a method for those with a proclivity to explore new dimensions of their minds to make fragmented parts of themselves whole. It can be a painful process to see fissures in your psyche that you’ve developed strong defenses around - those defenses are important survival strategies. Don’t take this work lightly.
+
+This has been a guide to some of the fundamental lessons that I feel would have been valuable to me when first embarking on this path. I hope they’ve been useful to you. We’ll keep writing on these topics, sending out weekly news on what’s happening in the world of psychedelics and looking for new ways to engage with the psychonaut community.
+
+Until next time, stay kind
+
+\-We all go boom
