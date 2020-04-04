@@ -13,6 +13,7 @@ fields:
   name: description
   label: description
 pages:
+- content/blog/5-lesson-for-the-aspiring-psychonaut.md
 - content/blog/lesson-1-dao-of-the-psychonaut.md
 - content/blog/lesson-2-entheogens-i-ve-known-and-loved.md
 - content/blog/numinus-pitch-deck.md
