@@ -1,7 +1,7 @@
 ---
 title: 5 Lessons for the Aspiring Psychonaut
 date: 2020-04-04T04:00:00Z
-description: ''
+description: A guide for journeys in the Dao of the psychonaut
 
 ---
 ### **Lesson 1: The Dao of the Psychonaut**
