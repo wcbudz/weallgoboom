@@ -6,6 +6,8 @@ description: Any kind of altered state can be a doorway to self-exploration. Cho
   out from there.
 
 ---
+![Time to see that god within, y'all](/content/assets/allseeingeye.jpeg "Time to see that god within, y'all")
+
 Hello citizen,
 
 As a psychonaut, you'll be experimenting with altered states of consciousness in the interest of self-exploration and knowledge. To achieve those states a variety of methods are available, not all drug-induced.
