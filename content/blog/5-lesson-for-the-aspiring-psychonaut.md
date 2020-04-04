@@ -4,7 +4,7 @@ date:
 description: ''
 
 ---
-Lesson 1: The Dao of the Psychonaut
+### **Lesson 1: The Dao of the Psychonaut**
 
 **_TL;DR for Lesson 1: Use alternative states of consciousness to start becoming aware of the patterns and streams that make up the mask of "you."_**
 
@@ -48,7 +48,7 @@ This is not easy work.
 
 But what you’ll come to know with effort on the psychonaut’s path is that there are no good trips, there are no bad trips, that there are just trips. Putting that at the forefront when embarking on a journey is the first step towards keeping your vessel sailing towards the Dao.
 
-**Lesson 2: Entheogens I've known and loved**
+### **Lesson 2: Entheogens I've known and loved**
 
 **_TL;DR for lesson 2: Any kind of altered state can be a doorway to self-exploration. Choose something that is safely procured, develop your path with that method, and branch out from there._**
 
@@ -81,3 +81,80 @@ Although the fruiting bodies (the part that you recognize as a mushroom) are ill
 To use DMT properly you'll need a good psychonatical partner and we recommend some experience with psilocybin before jumping to this advanced technique. We'll also be writing an in-depth guide to this "spirit molecule" in the future.
 
 In the next edition of this guide, we'll go through what is important to know in regards to the set and setting in the use of entheogens and even some retreats that have been established for safe exploration with knowledgeable guides.
+
+### **Lesson 3: Set and setting, the inner mind and outer world**
+
+**_TL;DR for lesson 3: Your mental and physical environment preceding a trip will shape the experience. Do prework to get yourself in a state where you can accept and mindfully observe what transpires vs being swept up in and reacting to it._**
+
+Maybe more important than any detail of the psychonaut's experience is developing a proper set and setting for your explorations.   
+  
+Set is shorthand for mindset, the setting is the physical environment that you're situated in, so we're talking about your inner and outer landscape.   
+  
+For a proper setting, you want to design your environment in a way that will support your altered state. Think about things that might be difficult while on your journey, like figuring out what music to play or getting up to get water, etc. Here's a quick list of things you could do to help the setting:
+
+* Get playlists but together by mood, so you can quickly change to a feeling vs searching for a certain song
+* Try to create at least a couple playlists that are free of lyrics since words can be distracting during come-up and peak experience
+* Prepare a plate of cut fruit for the comedown period
+* Have bottles of water placed throughout your space
+* Make the space tidy and free of obstructions - a messy space can negatively impact your mindset during a trip
+* If you decide on an outdoor space, have a blanket to lie down on and a sweater or something to keep yourself cozy
+* In an indoor space, avoid candles or other flames that you have to maintain, but think through different lighting options like dimmers, or fairy lights
+* If possible, invite a sitter who will not be on the trip, but has experience themselves and will assist with keeping the setting optimized and each trippers set calm
+
+Your mindset or 'set' is, in my opinion, the most important area to cultivate for a psychonaut. Do you have a meditation practice? How do you deal with stress and anxiety in your everyday life? Is this a time in your life where you feel prepared to face stark realities of your existence, your past and possible future?   
+  
+While entheogens can certainly help cultivate a flexible mind that can deal well with all that a psychedelic voyage brings, going into the trip flippantly is likely to have harsh consequences.   
+  
+The best strategy is to do work leading up to your experience that helps you remain mindful and within the Dao of the psychonaut.
+
+Here's our prep list for cultivating a proper set:
+
+* Practice meditation for waking mindfulness. These two apps are a great place to get started if you don't have a practice: [headspace ](https://www.headspace.com/)or [10% happier](https://www.tenpercent.com/)
+* Write down an intention for your trip. What are you trying to learn, or understand? What are you open to?
+* Have conversations with each person who will be tripping with you beforehand and discuss what you're each looking to get out of the experience
+* Establish boundaries with each tripper, e.g. let each other know, do you want to be held if you cry? Are back rubs or other touching permitted? What should people know about your previous experiences if any and how you like to interact with others during a trip.
+* Do breathwork so that your ability to 'ground' yourself is heightened. Practice easy controlled breaths in on a count of 4, easily controlled breaths out on a count of four - feel the ground under your feet
+
+And maybe most importantly for the set, remember what Timothy Leary said (and the Beatles quoted in Tomorrow Never Knows"), "**_Whenever in doubt_**, **_turn off your mind_**, **_relax_**, **_float downstream_**.'
+
+Relax and let the teachers show you what you need to see. Both sets and settings can be supported by going on a psychedelic retreat with a reputable and experienced organization. If you are less experienced with entheogens and have the financial means, this can be a good way to start exploring. The website Thirdwave provides a[ comprehensive list](https://thethirdwave.co/psychedelic-retreats/). I'd also add to that list:   
+  
+[MycoMeditations](https://www.mycomeditations.com/), Jamaica, Psilocybin retreat
+
+### **Lesson 4: Ordeals in the hero's journey aka how to stop a bad trip**
+
+**_TL;DR for lesson 4: A trip is likened to the hero's journey. It's not going to always be easy, but through the 'bad' times we have our biggest opportunities for the transformation we're searching for._**
+
+In Joseph Campbell's [The Hero with a Thousand Faces](https://www.amazon.com/Thousand-Faces-Collected-Joseph-Campbell/dp/1577315936), he outlines the hero's journey, which is a framework in literature, myth, and stories that is a powerful archetype of the hero's voyage towards self-discovery, transformation, and growth. There are 12 steps to the hero's journey, broken into 3 acts:   
+  
+Act 1: Departure
+
+Act 2: Initiation
+
+Act 3: Return
+
+Overlaying this framework on your own path can be a powerful mechanism for coping with what might otherwise be experienced as a 'bad' trip.   
+  
+I don't put quotes around 'bad' to make light of the psychological depths and demons we face - qualifying a trip a bad can certainly be valid when we're feeling locked in loops, trapped in self-judgment, or enveloped in fear during a psychedelic experience.   
+  
+For the advanced psychonaut though, 'bad' does become a less meaningful modifier because with intention and practice you can start to see the ordeals that you might come across during your journey as the biggest opportunities for transformation and insight - and that's why we're here, right?
+
+In the **departure**, the hero is in the 'ordinary world' and something happens or information is received that piques their interests or acts as a call to adventure (following the white rabbit). The hero may refuse the call and believe that this isn't a journey they can undertake, or they're not the right person. A mentor comes in and leads the hero across a boundary, escorting them into a new, _unknown world.   
+  
+_The unknown world is where the **initiation** begins. The hero faces trials, either alone or with the assistance of their traveling party.   
+  
+The hero eventually reaches the main crises where they face "the ordeal." This is the key to our 'bad' trip experience. In the ordeal of a trip, just like Campbell's hero's journey, you'll face pursuit by guardians of the unknown world, or you may be entranced into wanting to never leave the special place. If you've done the pre-work, set your intentions, surrounded yourself with travelers that you trust and everyone knows their part, you'll conquer the ordeal and start your return to the ordinary world in the **return** - the most important act of the journey as this is where you'll bring back the elixir or the knowledge and transformation that can help your community and beyond.   
+  
+Now, this mythological framework may be a powerful lens for seeing your life and psychonaut's journey, but what about when the shit gets really _really_ bad during a trip? If you need a lifeline, there are few ways to pull the ripcord.   
+  
+1\. Have a piece of paper with a message in your pocket - "you've taken a substance, this is a trip, it will pass" - that phrase, repeated in your head can act as a powerful reassurance that grounds you.
+
+2\. Speaking of grounding - use your breath-work, 4 slow counts in, 4 slow counts out, feel your feet on the floor - repeat the above phrase.
+
+3\. Ask for assistance - if you have trip sitter on hand, let them know that you're having a hard time. Connecting with someone who you trust and supports you can ease the difficulty of the experience
+
+4\. Go to a calm, comfortable, quiet space
+
+5\. Do not take other substances - Alcohol, benzodizapiens, cannabis - these can all have the opposite effect you're looking for.   
+  
+Remember, this is going to pass - if it's LSD or psilocybin, no one has ever died directly from these substances and you couldn't physically take enough for that to happen. It will pass. When you come out on the other side, it's time for integration work. You'll want to examine the fear you experienced, talk this out with a psychedelic therapist if possible, but at the very least journal your journey to help process it and bring that elixir back to others.
