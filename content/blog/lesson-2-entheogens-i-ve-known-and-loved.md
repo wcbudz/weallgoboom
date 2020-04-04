@@ -6,15 +6,15 @@ description: Any kind of altered state can be a doorway to self-exploration. Cho
   out from there.
 
 ---
-Hello citizen,   
-  
-As a psychonaut, you'll be experimenting with altered states of consciousness in the interest of self-exploration and knowledge. To achieve those states a variety of methods are available, not all drug-induced.   
-  
-A pioneer of psychonautica, Stanislov Graf, developed a method of working with just your breath and music called [holtropic breathwork](http://www.holotropic.com/holotropic-breathwork/about-holotropic-breathwork/), which allows us to enter deep states of non-ordinary consciousness.   
-  
+Hello citizen,
+
+As a psychonaut, you'll be experimenting with altered states of consciousness in the interest of self-exploration and knowledge. To achieve those states a variety of methods are available, not all drug-induced.
+
+A pioneer of psychonautica, Stanislov Graf, developed a method of working with just your breath and music called [holtropic breathwork](http://www.holotropic.com/holotropic-breathwork/about-holotropic-breathwork/), which allows us to enter deep states of non-ordinary consciousness.
+
 This is one of but many methods of exploration, but personally, the preferred rocket fuel for propulsion towards the stars of our minds is plant-based entheogens. Entheogen, meaning a drug that facilitates seeing the "god within" is a word coined in the late 70s by a group of ethnobotanists and literary scholars, including R. Gordon Wasson, a man largely responsible for introducing America to psilocybin mushrooms in the late 50s.
 
-[![Life Magazine, May 1957 - Discovery of mushrooms that cause strange visions](https://embed.filekitcdn.com/e/r5EXEbp2j1gPycgsvz23Bw/mjqxanezaFAcDmUdPmDNUk/email =200x)](http://www.psychedelic-library.org/life.htm "Life Magazine, May 1957 - Discovery of mushrooms that cause strange visions")
+![](/content/assets/lifecover.jpg)
 
 Humans have been using entheogens for[ thousands of years in ceremony and religious practice](https://en.wikipedia.org/wiki/Entheogenic_drugs_and_the_archaeological_record). Today, because of loosening restrictions on these substances are being seen as valuable to the medical industry for healing and wellness. My hope is that we find a path to incorporating them into our culture without allowing capitalism to[ completely knock the teeth out ](https://weallgoboom.com/numinus-pitch-deck/)of these powerful teachers.
 
