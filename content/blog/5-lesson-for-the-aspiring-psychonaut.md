@@ -1,6 +1,6 @@
 ---
 title: 5 Lesson for the Aspiring Psychonaut
-date: 
+date: 2020-04-04T04:00:00Z
 description: ''
 
 ---
